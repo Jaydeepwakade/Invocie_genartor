@@ -1,1 +1,0 @@
-# Invocie_genartor
